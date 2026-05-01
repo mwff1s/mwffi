@@ -14,3 +14,6 @@ hii ! miwo ' mw<br>any pronounce 𝜗ৎ she|his<br>    ────୨ৎ──
 
 ![Profile Views](https://komarev.com/ghpvc/?username=mwff1s&color=blue)
 
+<img src="https://i.pinimg.com/originals/ac/23/f1/ac23f1b3a56d9a98c5bf48e88b5f365b.gif" width="200">
+
+
