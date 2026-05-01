@@ -13,6 +13,7 @@ hii ! miwo ' mw<br>any pronounce 𝜗ৎ she|his<br>    ────୨ৎ──
 
 можете перекрывать, только не наглейте пожалуйста 
 
+<div align="center">
 <img src="https://i.pinimg.com/736x/42/58/70/4258702087433503c7a342eb8dce4baa.jpg" width="500">
 
 
