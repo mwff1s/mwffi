@@ -2,7 +2,7 @@
 ! ! !
 ![Profile Views](https://komarev.com/ghpvc/?username=mwff1s&color=blue)
 
-hii ! miwo ' mw<br>any pronounce 𝜗ৎ she|his<br>    ────୨ৎ────<br>c + h , offtab many times < w2i<br>rus ' eng ' france
+hii ! франс ' mw<br>any pronounce 𝜗ৎ she|his<br>    ────୨ৎ────<br>c + h , offtab many times < w2i<br>rus ' eng ' france
 
 <div align="center">
   <img src="https://i.pinimg.com/originals/d2/cd/a0/d2cda01b152b9e7e29bfafc5d9081f6d.gif" width="500">
